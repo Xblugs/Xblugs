@@ -1,4 +1,4 @@
-**Profile in construction!**
+**Learning in progress!**
 
 Hello, i'm Xblugs, currently student at 42 Le Havre and aiming for [RNCP7 - Expert en Architecture informatique](https://www.francecompetences.fr/recherche/rncp/39774/)
 
